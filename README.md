@@ -14,3 +14,8 @@
 谢谢大家
 
 
+**附件**
+
+- [x] MT管理器 包含1.0到3.0  GitHub附近太难上传了，要取的请移步至  链接: https://pan.baidu.com/s/1_JuzCYqhaDAeFNechPwh0g 提取码: 32nr
+
+
